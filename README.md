@@ -1,2 +1,2 @@
 
-Change paniten,new11 
+Change panite
